@@ -1,8 +1,5 @@
 qwqzxsds
-assdbvbfvdfsfszc
-cbvbfczccas
-asasasdadsadas
-SADDadsewewwqada
+ass
 dsfffffdsfsdf
 sasaa
 bfgxdxgzds
