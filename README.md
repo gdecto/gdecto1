@@ -6,5 +6,4 @@ bfgxdxgzds
 gtgsg
 vdsfsdzfsfs
 hthfgdsfsf
-gfdgsfhjkjkmhjvmkhjk
-gbfxdgfgsef
+gfdgsfhjkjkm
