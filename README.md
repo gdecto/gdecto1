@@ -2,7 +2,4 @@ qwqzxsds
 ass
 dsfffff
 sasaa
-bfgxdxgzds
-gtgsg
-trttet
-fgghhfhf
+bfgx
